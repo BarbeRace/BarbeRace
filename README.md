@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BarbeRace, and you who are you ?
+- 👀 I’m interested in very old pourrave java such as swing.
+- 🌱 I’m currently learning the piano.
+- 💞️ I’m looking to collaborate on ihm for nuclear power plant.
+- 📫 How to reach me : oui
+- :trollface: I'm a troll
+- :neckbeard: I'm following the Barbossa legacy
